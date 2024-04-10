@@ -1,0 +1,1 @@
+# paradigmas-2024-C1
